@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Baronovsky
 - 👀 I’m interested in cats, sandwiches, tartan skirts
-- 🌱 I’m currently learning how to adult, and HTML
+- 🌱 I’m currently learning how to adult, and Blender
 - 💞️ I’m looking to collaborate on grunt labor
 - 📫 How to reach me : luck, carrier pigeon.
 
